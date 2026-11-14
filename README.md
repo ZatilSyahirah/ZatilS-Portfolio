@@ -31,7 +31,7 @@ I specialize in bridging the communication gap between business stakeholders and
 ## 📫 Let's Connect!
 - **LinkedIn:** [linkedin.com/in/zatil-ismah-syahirah](https://www.linkedin.com/in/zatil-ismah-syahirah)
 - **Email:** zatilsyahirah.work@gmail.com
-- **Resume/Portfolio:** [Link to your PDF if you upload it to Google Drive/GitHub]
+- **Resume/Portfolio:** https://drive.google.com/file/d/12hv9_B9Bfyd1FYzgxUH3pshsYcGm14ZT/view?usp=drivesdk
 
 ---
 *"I focus on creating a win-win environment: driving company growth, delivering exceptional client satisfaction, and fostering my team's well-being."*
